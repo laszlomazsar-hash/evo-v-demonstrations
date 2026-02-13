@@ -27,6 +27,6 @@ This produces clear, coherent, and intentional reasoning.
 5. Launch publicly and iterate  
 
 Full explanation and context:  
-👉 *[Insert your Substack link]*
+https://substack.com/@codexbylaszlo/note/p-187871397?r=74bvxq&utm_medium=ios&utm_source=notes-share-action
 
 More demonstrations will be added as the evo‑v lineage develops.
